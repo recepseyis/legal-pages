@@ -1,2 +1,0 @@
-# legal-pages
-legal-pages
